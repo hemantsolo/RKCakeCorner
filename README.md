@@ -1,0 +1,1 @@
+**Welcome to the Homemade Cakes Website repository! This project showcases our business offering homemade cakes in Khawasa and Sarangi. Whether you're looking for custom cakes, pastries, or cake classes, you'll find everything you need right here.**
